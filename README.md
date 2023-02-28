@@ -8,7 +8,7 @@
 ## SEMI_PROJECT_1 최우수상 수상!!
 
 
-[GIF]
+[GIF]![200835463-c81c37c3-236b-4e81-8bbe-9bf6d085eb09](README.assets/200835463-c81c37c3-236b-4e81-8bbe-9bf6d085eb09.gif)
 
 
 
